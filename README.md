@@ -31,10 +31,8 @@ Our main purpose is to provide high end and quality solutions with lowest cost i
 
 Web  :  http://www.techabbot.com
 
-For Sales:
-Email : sales@techabbot.com
+For Sales: sales@techabbot.com
 
-For Other Inquiries:
-Email : info@techabbot.com
+For Other Inquiries: info@techabbot.com
 
 For more details and portfolio, please visit our portfolio page at : http://www.techabbot.com/portfolio/
